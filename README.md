@@ -1,0 +1,1 @@
+# WAQF_Property_Details
